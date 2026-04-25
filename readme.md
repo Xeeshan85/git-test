@@ -1,3 +1,4 @@
-## README
-I'm first readme
-- Add new feature.
+## Heyooo, wasssup this is my code, check it out.
+
+- Sara QUEEN.
+
